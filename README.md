@@ -1,3 +1,3 @@
 # programesana30042024
 atkārtojums
-Krastiņš
+Krastiņš bija šeit
